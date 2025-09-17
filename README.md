@@ -29,7 +29,7 @@ I design and build responsive, accessible, and user-first web interfaces with a 
 ●  🎧 Vibing to music and curating aesthetics  
 ●  ✍🏽 Journaling wins and life lessons  
 ●  👗  Playing dress up and exploring personal style
-●  💡 Dreaming up the next side project  
+
 
 
 
